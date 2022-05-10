@@ -1,0 +1,1 @@
+# stc-stranka-finale
